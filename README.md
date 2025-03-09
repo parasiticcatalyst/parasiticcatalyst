@@ -1,11 +1,13 @@
-<p align="center">
-<img src="https://files.catbox.moe/qjttes.webp"
-</p>
+" is it the ego or the pride? " 
 
-genderfae 17yo lesbian + aroflux ace (^_^)
+bonnibel / parasite 
 
-14- dni
+17yo genderfae aroflux lesbian
 
-awkward at first (sometimes) but when you get to know me im epicsauce trust :3 !!
+proudly silly .. i love being joypilled and wondermaxxing
 
-[icon](https://x.com/imppular)
+" i guess thats for you to decide! "
+
+<p align="centre">
+<img src="https://files.catbox.moe/54ch48.gif">
+</p> 
